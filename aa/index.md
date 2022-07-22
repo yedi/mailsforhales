@@ -57,7 +57,7 @@ But I could also treat myself. Good thing there's a [wikihow article](https://ww
 
 ![laughter apology](/assets/img/laughter-apology.jpeg)
 
-I def agree with that one!
+I def agree with that tip!
 
 Turns out tiktok is a thing, and there's some very relevant videos...
 
