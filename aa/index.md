@@ -30,6 +30,34 @@ This one is just gross
 
 My realization was definitely strong
 
+![a laugh gif](/assets/img/laugh-gif-1.gif)
+![a laugh gif](/assets/img/laugh-gif-2.gif)
+![a laugh gif](/assets/img/laugh-gif-3.gif)
+![a laugh gif](/assets/img/laugh-gif-4.gif)
+![a laugh gif](/assets/img/laugh-gif-5.gif)
+![a laugh gif](/assets/img/laugh-gif-6.gif)
+![a laugh gif](/assets/img/laugh-gif-7.gif)
+![a laugh gif](/assets/img/laugh-gif-8.gif)
+![a laugh gif](/assets/img/laugh-gif-9.gif)
+![a laugh gif](/assets/img/laugh-gif-10.gif)
+![a laugh gif](/assets/img/laugh-gif-11.gif)
+![a laugh gif](/assets/img/laugh-gif-12.gif)
+![a laugh gif](/assets/img/laugh-gif-13.gif)
+![a laugh gif](/assets/img/laugh-gif-14.gif)
+
+There are just too many examples!
+
+So I kept looking stuff up and turns out I might have a laughing disorder. At least according to [this article](https://www.verywellhealth.com/laughing-disorder-5094371)
+
+![a laugh gif](/assets/img/laughter-disorder.webp)
+
+Wondering if I should go see a doctor?
+
+But I could also treat myself. Good thing there's a [wikihow article](https://www.wikihow.com/Stop-Laughing-at-Inappropriate-Times) that teaches how to prevent this from happening. One of the steps is to apologize for the laughter...
+
+![laughter apology](/assets/img/laughter-apology.jpeg)
+
+I def agree with that one!
 
 
 
