@@ -1,6 +1,6 @@
 Feria de las Flores is a cool bit of Medellin culture. 
 
-Here's some of the pictures I've been able to capture in celebration
+Here are some of the pictures I've been able to capture in celebration
 
 But before that... there's a saying in the hip hop community ["giving flowers"](https://www.urbandictionary.com/define.php?term=Giving%20flowers) that's all about showing appreciation and respect for someone, especially before they're no longer around.
 
